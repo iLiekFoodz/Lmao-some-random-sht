@@ -1,4 +1,4 @@
-# Lmao-some-random-sht
+# Lmao-some-random-stuff
 idfk 
 
 
